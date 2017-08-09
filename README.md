@@ -1,0 +1,1 @@
+<img src="https://gyazo.com/08d49e756c6a7192729d6c9a876415a1.gif" />
